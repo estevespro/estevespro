@@ -2,9 +2,9 @@ KALIL ESTEVES 👋
 
 
 
-- 🔭 I’m currently work como motoboy
-- 🌱atualmente estou estudante  para  DEV junior
-- 👯 I’m looking to collaborate e aprender 
+- 🔭 Atualmente estou trabalhando como motoboy
+- 🌱atualmente estou estudando para  DEV junior
+- 👯 procuro colaborar e aprender
 - 🤔 I’m looking for help with  o primeiro emprego
 - 📫 How to reach me:  lil-esteves@live.com
 -->
