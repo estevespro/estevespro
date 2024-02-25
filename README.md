@@ -3,9 +3,9 @@ KALIL ESTEVES 👋
 
 
 - 🔭 Atualmente estou trabalhando como motoboy
-- 🌱atualmente estou estudando para  DEV junior
+- 🌱 Estudando ADS na Fundação Santo André 
 - 👯 procuro colaborar e aprender
-- 🤔 I’m looking for help with  o primeiro emprego
+- 🤔 Procurando o primeiro emprego no ramo
 - 📫 How to reach me:  lil-esteves@live.com
 -->
 <div>
