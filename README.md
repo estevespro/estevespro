@@ -6,7 +6,7 @@ KALIL ESTEVES 👋
 - 🌱 Estudando ADS na Fundação Santo André 
 - 👯 procuro colaborar e aprender
 - 🤔 Procurando o primeiro emprego no ramo
-- 📫 How to reach me:  lil-esteves@live.com
+- 📫 Disponível peo Email: kalilesteves@icloud.com
 -->
 <div>
 <a href="https://beacons.ai/estevespro">
